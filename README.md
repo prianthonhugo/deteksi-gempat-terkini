@@ -1,0 +1,1 @@
+# deteksi-gempat-terkini
